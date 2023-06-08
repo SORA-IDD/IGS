@@ -82,7 +82,8 @@ Insta account tab open
 
 Just click three dot menu and scroll down let you can see the extension. Now click the extension. Done you can see your cookie.
 
-
+###  WARNING ⚠ ⚠
+###### Program Ini Bersifat Ilegal. Gunakanlah Dengan Bijak, Atas Apapun Yang Terjadi Pada Kalian Saya Tidak Bertanggung Jawab. Dilarang Keras Menggunakan Script ini Secara Berlebihan!
 
 
 
